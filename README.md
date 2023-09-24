@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sinakz13
+- 👋 Hi, I’m @Sina
 - 👀 I’m interested in developer
 - 🌱 I’m currently learning digitall world
 living
